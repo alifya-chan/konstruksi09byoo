@@ -1,1 +1,0 @@
-# konstruksi09byoo
